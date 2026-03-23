@@ -31,7 +31,7 @@
 
 ## 📫 Connect with Me
 - 📧 Email: dhyanabalaji@gmail.com
-- 💼 LinkedIn:  https://Dhyana Balaji
+- 💼 LinkedIn:  https://DhyanaBalaji
 -  
 
 ---
